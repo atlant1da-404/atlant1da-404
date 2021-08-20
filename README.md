@@ -4,6 +4,6 @@
 [![Telegram Badge](https://img.shields.io/badge/-Telegram-0088cc?style=flat-square&logo=Telegram&logoColor=white)](https://t.me/atlant1da_404)
 ### I am 18 y.o Back-End Developer from UA!
 **Personal Stuffs:** -   
-👨🏻‍💻 I stand with a match in my hands in the hope of a good future;
+👨🏻‍💻 I stand with a match in my hands in the hope of a good future; -
 💬 Ask me about anything, I am happy to help; -   
 📫 How to reach me: kalnybolotchyk.01@gmail.com; </br> <hr> 
